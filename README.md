@@ -2,7 +2,7 @@
 > – *People.*
 
 ---
-@ten_mefo
+
 Instagram: [**@ten_mefo**](https://www.instagram.com/ten_mefo/) \
 TikTok: [**@ten_mefo**](https://www.tiktok.com/@ten_mefo)
 
